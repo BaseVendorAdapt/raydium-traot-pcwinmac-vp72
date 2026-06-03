@@ -1,4 +1,4 @@
-# 
+# Nativo raydium trading bot modelos para Mac OS | Top raydium trading bot modelos para PC Windows. Com market making e notificações de alerta — otimizado para máximo desempenho em cada plataforma.
 
 
 
